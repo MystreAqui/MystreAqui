@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋.  I'm an Independent Digital Technician. I like surfing the web on metaphysical waves, diving deep into Digital Stuff and playing Starcraft 2.  Above all that I have a beautiful lady in my life known on here as @lkayy. She puts me on all the cool ish...Bless Up!
 
 <!--
 **MystreAqui/MystreAqui** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
